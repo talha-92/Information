@@ -4,3 +4,4 @@ Talha Ansari
 New York
 born in Oman
 I love to sleep
+I play Call of Duty
